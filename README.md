@@ -16,4 +16,4 @@
 by #Reddys Tech Sol 
 
 https://t.me/WhiteHatHacks
-https;//t.me/alex14324
+https://t.me/alex14324
